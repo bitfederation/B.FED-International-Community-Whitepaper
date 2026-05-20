@@ -1,1 +1,1 @@
-# B.FED-International-Community-Whitepaper#
+# B.FED-Community-Whitepaper#
